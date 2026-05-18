@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop for PC plugins is the best Adobe Photoshop for PC plugins with typography-tools and interactive-PDF. Safe, reliable, and optimized for maximum
 
 
 
